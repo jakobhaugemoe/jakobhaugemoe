@@ -1,4 +1,5 @@
 ### Hi there 👋
+![ThumbsThumbsUpKidGIF (2)](https://github.com/jakobhaugemoe/jakobhaugemoe/assets/142204289/8b73ec0e-81d0-4d20-9a97-43f3f3bd391f)
 
 <!--
 **jakobhaugemoe/jakobhaugemoe** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
